@@ -6,3 +6,4 @@
 可以在作者B站或爱发电赞助
 B站：https://space.bilibili.com/1012815730
 爱发电：https://afdian.net/a/xiaojincraft
+本资源无内测版，只有正式和公测
